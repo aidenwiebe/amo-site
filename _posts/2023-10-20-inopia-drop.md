@@ -8,5 +8,5 @@ Following the cancellation of a collaborative opportunity originally organized b
 [https://samhansell.bandcamp.com/album/inopia](https://samhansell.bandcamp.com/album/inopia)
 
 Photos by Vynz:
-![inopia1](inopia1.jpg)
-![inopia2](inopia2.jpg)
+<img src="http://apolmus.org/inopia1.jpg">
+<img src="http://apolmus.org/inopia2.jpg">

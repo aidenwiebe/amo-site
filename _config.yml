@@ -1,17 +1,8 @@
-site: Sidey
-url: #yoururl
-title: Sidey
-description: Simple and minimalistic jekyll blogging theme.
-twitter:
-  username: #yourusername
-  card: summary
-  creator: #yourusername
-author:
-  twitter: #yourusername
-  name: #yourusername
-  avatar:
-  email: #youremail
-  url: #yoururl
+site: amo
+url: https://apolmus.org
+title: AMO or the apolitical musicians' organization or apolmus if you will
+description: music are the best
+
 permalink: pretty
 
 baseurl: ""

@@ -28,16 +28,16 @@ google_analytics: ""
 
 # Site navigation - each item must have a title and a url.
 navigation:
-  - text: portfolio
+  - text: promo
     url: /
-  - text: about me
+  - text: about AMO
     url: /about/
-  - text: professional bio
-    url: /professional-bio
-  - text: mixing
-    url: /mixing
-  - text: bloggy
-    url: /blog/
+  - text: EPK
+    url: /EPK
+  - text: mission
+    url: /mission
+  - text: articles
+    url: /articles/
 
 # Colors
 accent_color: '#9595c7'

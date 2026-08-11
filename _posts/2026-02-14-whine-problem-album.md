@@ -2,17 +2,17 @@
 layout: post
 title: Whine Problem's secret release on the AMO digital zine.
 ---
-CREDITS:
-Zlatescu as producer
-Emrys as bass
-Hunter on vocals
-Lee on guitar
-Cora on drums
-Simon as engineer
-Thrashbourne as technician
-Aiden as post production
+**CREDITS:**<br>
+Zlatescu as producer<br>
+Emrys as bass<br>
+Hunter on vocals<br>
+Lee on guitar<br>
+Cora on drums<br>
+Simon as engineer<br>
+Thrashbourne as technician<br>
+Aiden on post production<br>
 
-<audio src="http://apolmus.org/the fiddler was my father.mp3">
+<audio src="http://apolmus.org/thefiddlerwasmyfather.mp3">
 
 Or listen to [avertingeyes.bandcamp.com](avertingeyes.bandcamp.com) for something darker
 

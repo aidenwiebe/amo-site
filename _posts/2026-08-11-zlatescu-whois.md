@@ -37,13 +37,20 @@ If only you were open to it, I think we could seriously change the world for the
 
 Written by Aiden Waasaezi
 
+<img src="http://apolmus.org/shrine.png">
+
 Bourinot, John George, Sir (1881). The intellectual development of the Canadian people : an historical review.   Toronto : Hunter, Rose & Company https://archive.org/details/intellectualdev00bourgoog
+
 McDonald, John (1952) The Message of a Master. DeVorss & Co http://pinky.bol.ucla.edu/moonflea/pdfs/message_of_a_master.pdf
+
 Karlova, M. (2025). The Fundamental Inoperability of Psychotherapy: A Critical Analysis through the Lens of the Hammurabi Paradigm. Zenodo. https://doi.org/10.5281/zenodo.15182641
 
 *CBC interview: https://www.cbc.ca/news/canada/london/london-ontario-witch-film-cbc-1.7096506*
+
 *band 1: https://willowswitch.bandcamp.com/*
+
 *band 2: https://avertingeyes.bandcamp.com/*
+
 *instagram source: https://www.instagram.com/will.oh.the.wisp/*
 
 *but the best source is that which has been revealed to me by the great spirit during an extended interview in daily increments since June 19th of this year.*

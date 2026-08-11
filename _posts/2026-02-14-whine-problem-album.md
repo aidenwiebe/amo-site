@@ -12,7 +12,7 @@ Simon as engineer<br>
 Thrashbourne as technician<br>
 Aiden on post production<br>
 
-<audio src="http://apolmus.org/thefiddlerwasmyfather.mp3">
+http://apolmus.org/thefiddlerwasmyfather.mp3"
 
 Or listen to [avertingeyes.bandcamp.com](avertingeyes.bandcamp.com) for something darker
 

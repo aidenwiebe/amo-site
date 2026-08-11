@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Our enormous 4 page takedown of OIART Inc.
+title: Our first action against OIART Inc.
 ---
 
 Cease and Desist for O.I.A.R.T. Incorporated 

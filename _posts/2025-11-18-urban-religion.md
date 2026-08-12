@@ -7,7 +7,6 @@ We use the term "urban religion" because we must reject the claim that any one u
 
 ------------------------------------
    **[[WITH HEAVY SARCASM:]]**
-------------------------------------
 
 As exciting as it may be to think that MY ancestors invented the power of rules, as MY GOD had planned for us, 
 
@@ -18,11 +17,11 @@ Of course not!  I will never concede, that as a Christian, the pre-christian jew
 Because if it did, then it would obviously be more prevalent!  More widespread!  
 Because you see, the goodness of a culture is not in its potential for spiritual liberation.  It's in its REALITY.  
 
-And THE TRUTH is, thre are more christians in the united states.  And as we value cohesion, it is actually best to spread MY IDENTITY across MY country.  Until MY FELLOW COUNTRYMEN are clones of me.  Then, and only then, can we finally build a world that brings me an unwavering pride in who I am as a nationalist.  
+And THE TRUTH is, there are more christians in the united states.  And as we value cohesion, Canada will be the 51st.  It is actually best to spread MY IDENTITY across MY country.  Until MY FELLOW COUNTRYMEN are clones of me.  Then, and only then, can we finally build a world that brings me an unwavering pride in who I am as a nationalist.  
 
 My nation is good.  We work towards technological progress and economic domination, just as the germans did and the romans.  But we're better, we're enlightened like the greeks.  And we follow Jesus.  It's the perfect package.  My pride is in the right place.  It's nothing like the sinful pride that leads to elitism.  It's the productive pride- that when placed correctly:
 
-in the country that cares for its citizens.  In the book of my people.  In the evolution of my city into a global hub for important people.   Our success on the world stage, and in the eyes of GOD.... leads instead to the harmonious utopia that despite all this blind dedication, still exists in my mind.  And if we fail, if we actually bring about hell on earth, we tried.  We will be rewarded in the afterlife all the same.  
+in the country that cares for its citizens.  In the book of my people.  In the evolution of my city into a global hub for those important wealthy internationals.   Our success on the world stage, and in the eyes of GOD.... leads instead to the harmonious utopia that despite all this blind dedication, still exists in my mind.  And if we fail, if we actually bring about hell on earth, we tried.  We will be rewarded in the afterlife all the same.  
 
 Utopia will be ours once these damn revolutionaries who wont shut the fuck up**WAIT!**
 **NOW THAT I MENTION IT**
@@ -44,4 +43,4 @@ I am using Jesus for my political motives too.  Only mine strive towards harmony
 ------------------------------------
 
 
-Written by Russell Freier
+Written by Aiden Waasaezi

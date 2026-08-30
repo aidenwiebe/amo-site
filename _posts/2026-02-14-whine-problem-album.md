@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Whine Problem's secret release on the AMO digital zine.
+title: [💿] Whine Problem's secret release on the AMO digital zine.
 ---
 **CREDITS:**<br>
 Zlatescu as producer<br>

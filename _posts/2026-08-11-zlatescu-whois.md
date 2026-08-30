@@ -1,6 +1,6 @@
 ---
 layout: post
-title: WHO ?ON GODS GREEN EARTH–IS AANDRA Zlătescu?!>❓❓❓❓!!!!
+title: Who on earth is Andra Zlătescu?
 ---
 
 
@@ -56,11 +56,7 @@ McDonald, John (1952) The Message of a Master. DeVorss & Co http://pinky.bol.ucl
 
 Karlova, M. (2025). The Fundamental Inoperability of Psychotherapy: A Critical Analysis through the Lens of the Hammurabi Paradigm. Zenodo. https://doi.org/10.5281/zenodo.15182641
 
-*CBC interview: https://www.cbc.ca/news/canada/london/london-ontario-witch-film-cbc-1.7096506*
-
-*band 1: https://willowswitch.bandcamp.com/*
-
-*band 2: https://avertingeyes.bandcamp.com/*
+*CBC interview: [https://www.cbc.ca/news/canada/london/london-ontario-witch-film-cbc-1.7096506]
 
 *instagram source: https://www.instagram.com/will.oh.the.wisp/*
 

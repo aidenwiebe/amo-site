@@ -1,6 +1,6 @@
 ---
 layout: post
-title: \[💿] They dont know that I joined willow switch
+title: (💿) They dont know that I joined Willow Switch
 ---
 **CREDITS:**<br>
 Andra: vocals, acoustic guitar, hand drum, saw <br>

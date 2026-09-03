@@ -12,9 +12,11 @@ Simon as engineer<br>
 Thrashbourne as technician<br>
 Aiden on post production<br>
 
-http://apolmus.org/thefiddlerwasmyfather.mp3"
+*leaky link: <a href="http://apolmus.org/thefiddlerwasmyfather.mp3" target="_blank">http://apolmus.org/thefiddlerwasmyfather.mp3</a>*
 
-Or listen to [avertingeyes.bandcamp.com](avertingeyes.bandcamp.com) for something darker
+*Something darker: <a href="avertingeyes.bandcamp.com" target="_blank">avertingeyes.bandcamp.com</a>*
+
+*Something poppier: <a href="https://madiris.bandcamp.com/" target="_blank">https://madiris.bandcamp.com/</a>*
 
 The AMO has come to support whine problem after an interview with Lee Fiddler revealed the sexual assault allegations to be unfounded, and the difficulties they experienced in that relationship to have stemmed from a very troubling childhood with a rapist for a stepdad.  
 

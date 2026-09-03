@@ -18,4 +18,4 @@ Andra and I aren't talking anymore cuz I called her a liar and pirated her music
 
 
 
-For more: [https://owlandantler.bandcamp.com/](https://owlandantler.bandcamp.com/)
+*For more: <a href="https://owlandantler.bandcamp.com/" target="_blank">https://owlandantler.bandcamp.com/</a>*

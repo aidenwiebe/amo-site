@@ -50,15 +50,14 @@ Written by Aiden Waasaezi
 
 
 
-Bourinot, John George, Sir (1881). The intellectual development of the Canadian people : an historical review.   Toronto : Hunter, Rose & Company https://archive.org/details/intellectualdev00bourgoog
+*Bourinot, John George, Sir (1881). The intellectual development of the Canadian people : an historical review.   Toronto : Hunter, Rose & Company https://archive.org/details/intellectualdev00bourgoog*
 
-McDonald, John (1952) The Message of a Master. DeVorss & Co http://pinky.bol.ucla.edu/moonflea/pdfs/message_of_a_master.pdf
+*McDonald, John (1952) The Message of a Master. DeVorss & Co http://pinky.bol.ucla.edu/moonflea/pdfs/message_of_a_master.pdf*
 
-Karlova, M. (2025). The Fundamental Inoperability of Psychotherapy: A Critical Analysis through the Lens of the Hammurabi Paradigm. Zenodo. https://doi.org/10.5281/zenodo.15182641
+*Karlova, M. (2025). The Fundamental Inoperability of Psychotherapy: A Critical Analysis through the Lens of the Hammurabi Paradigm. Zenodo. https://doi.org/10.5281/zenodo.15182641*
 
-*CBC interview: [https://www.cbc.ca/news/canada/london/london-ontario-witch-film-cbc-1.7096506]
+*CBC interview: For more: <a href="https://www.cbc.ca/news/canada/london/london-ontario-witch-film-cbc-1.7096506" target="_blank">https://www.cbc.ca/news/canada/london/london-ontario-witch-film-cbc-1.7096506</a>*
 
-*instagram source: https://www.instagram.com/will.oh.the.wisp/*
 
 *but the best source is that which has been revealed to me by the great spirit during an extended interview in daily increments since June 19th of this year.*
 <img src="http://apolmus.org/shrine.png">

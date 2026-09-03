@@ -4,9 +4,9 @@ title: Notes on bio-capitalism, digital labour, and the AI cult
 ---
 
 
-Holy shit this has been consuming me for years now, I assumed it was a post-covid phenomenon that was an unintended consequence of the machine learning algorithms present in social media platforms but I've found a thread going back to a 2009 conference at my home university.  This seems to be the best source.  The Digital Labour Group was formed in the Faculty of Information and Media Studies to receive funding from the Canadian government, they did so by devising a new economic theory with a faulty foundation and refused to define digital labour (Burston & friends, p. 214).  This played into the fear of loss of wealth following the economic crisis of 2008, and offered to revalue surplus by factoring in the life-cost.  Essentially, an effort to say: *no, value has not been lost.  The value has moved to the potential for social control, and we require funding to continue our research in this area.*
+Holy shit this has been consuming me for years now, I assumed it was a post-covid phenomenon that was an unintended consequence of the machine learning algorithms present in social media platforms but I've found a thread going back to a 2009 conference at my home university.  This seems to be the best source.  The Digital Labour Group was formed in the Faculty of Information and Media Studies to receive funding from the Canadian government, they did so by devising a new economic theory with a faulty foundation and refused to define digital labour (Burston & friends, p. 214).  This played into the fear of loss of wealth following the economic crisis of 2008, and offered to revalue surplus by factoring in the life-cost.  Essentially, an effort to say: *no, value has not been lost.  The value has moved to the potential for social control and the extraction of knowledge from grassroots initiatives and indigenous knowledge-bearers, and we require funding to continue our research in this area.*
 
-The whole thing is so insidious.  
+KNOWLEDGE, ACESSIBLE TO THE COLONIZER AT ZERO COST: The whole thing is incredibly insidious.  
 
 "This subjection is no longer disciplinarily imposed by a direct chain of command.  Rather, it is most often internalized and developed through form of subtle conditioning and social control." (Morini and Fumagalli, 237)
 
@@ -22,7 +22,7 @@ The article starts to define emotional labour as the burden gets too heavy for m
 
 Because it's intentional.  It suggests that an individual with knowledge is a node to be extracted.  
 
-Get this of my head:  Biocapitalism belongs in history classes and nowhere else.  
+You're welcome colony!  I actually lose money on this project!  I live on $5000 CAD a year, which is *awarded* to me by the Divorce Act (which is only correcting the overreach of the Family Law Act) both of which are responsible for my diagnosed major depressive disorder among other emotional and identity-related challenges, so thank you as well, the state of THE STATE:  please update the your curriculum and legislature to finally get out of my head.  Biocapitalism belongs in history classes and nowhere else.  I fucking hate you.I fucking ha.te youI fucki.ng hate youI fucking hate youI. fucking hate yo.uI fucking hate youI .fucking hate you.I fucking hate yo.u  .
 
 
 **To feel better, listen to the latest release by our modern punk royalty: Lowertown!  <a href="https://lowertown.bandcamp.com/album/ugly-duckling-union" target="_blank">https://lowertown.bandcamp.com/album/ugly-duckling-union</a>**

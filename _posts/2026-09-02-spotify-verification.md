@@ -4,7 +4,7 @@ title: Superstar Crush is not real, according to Spotify
 ---
 
 
-And neither are Oh Berlin, Mas Aya, Willow Switch, Sam Hansell, Hunter Stull, 4 Da Tribe, Mad Iris, or Juice Joint.  Half of these guys are on Vinyl.  
+And neither are Oh Berlin, Mas Aya, Willow Switch, Sam Hansell, Hunter Stull, 4 Da Tribe, Mad Iris, Osie, or Juice Joint.  Half of these guys are on Vinyl.  
 
 The only real band is Status Non-Status, led by Anishinaabe recording artist ADAM STURGEON!!!  They've been at it since 2009 tho.
 <a href="https://statusnonstatus.bandcamp.com/album/big-changes" target="_blank">https://statusnonstatus.bandcamp.com/album/big-changes</a>

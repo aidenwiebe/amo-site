@@ -1,0 +1,36 @@
+---
+layout: post
+title: Notes on bio-capitalism, digital labour, and the AI cult
+---
+
+
+Holy shit this has been consuming me for years now, I assumed it was a post-covid phenomenon that was an unintended consequence of the machine learning algorithms present in social media platforms but I've found a thread going back to a 2009 conference at my home university.  This seems to be the best source.  The Digital Labour Group was formed in the Faculty of Information and Media Studies to receive funding from the Canadian government, they did so by devising a new economic theory with a faulty foundation and refused to define digital labour (Burston & friends, p. 214).  This played into the fear of loss of wealth following the economic crisis of 2008, and offered to revalue surplus by factoring in the life-cost.  Essentially, an effort to say: *no, value has not been lost.  The value has moved to the potential for social control, and we require funding to continue our research in this area.*
+
+The whole thing is so insidious.  
+
+"This subjection is no longer disciplinarily imposed by a direct chain of command.  Rather, it is most often internalized and developed through form of subtle conditioning and social control." (Morini and Fumagalli, 237)
+
+"In the name of the market, biocapitalism tries to reconnect yet another historical separation, that of soul and body" (Morini and Fumagalli, 237).  
+
+"When the productive process incorporates knowledge and affects desires and bodies, motivations and opinions, then it is clearly evident that what is actually being sold is not entirely paid." (Morini and Fumagalli, 238).  
+
+The introduction of **Life put to work** places biocapitalism as a continuation of marxism.  It defines marxism as the theory that value is a material thing created by an amount of labour, measured in a unit of time.  It opposes this to utilitarianism, which is it defines as the theory that value is itself an abstract unit used to measure human utility.  Neither are the whole picture, but I'll get there soon.  The biocapitalists were close to my subjectivity network theory of everything, if only they gave up materialism.
+
+Instead, they claim to be an extention of marxism by expanding value to also include immaterial things, such as knowledge, the soul, and life itself (though life is rather material).  They retain labour-time as the metric of focus, meaning that the meaning of life, the value of existance, is determined by how much we work.  Though they will not admit it, this means that to the biocapitalist, unemployed people are worth less.  Disabled people are worth less.  Anticapitalists are worth less.  These statements are naturally unsettling; even those who might believe such lies are unsettled by the fear of punishment that would follow acting out such ideas in reality.  So it's an overreach for the biocapitalist to claim that knowledge can be produced by a market.  When the market framwork is used to understand life, it misses the mark.  This is ancient knowledge, found in all major religions.  The strangest thing then is how biocapitalism has infected academia, the arts, and our governments.  We'd like to think our species is becoming smarter as time goes on, but when the economists so plainly describe the internalization of market values into our self worth, it takes us 16 years to shake the spell.  It's clear now, this forshadows everything that's made the western states into hell on earth.  It's not a baby boomer v gen z cultural divide, its the most recent, most well-disguised effort on the part of the owning class to reposess underproductive or independent humans, when a return to slavery or another holocaust would be too obvious.  
+
+The article starts to define emotional labour as the burden gets too heavy for me to finish a 19 page document.  (Rhetoric.  I read it all.)
+
+Because it's intentional.  It suggests that an individual with knowledge is a node to be extracted.  
+
+Get this of my head:  Biocapitalism belongs in history classes and nowhere else.  
+
+
+**To feel better, listen to the latest release by our modern punk royalty: Lowertown!  <a href="https://lowertown.bandcamp.com/album/ugly-duckling-union" target="_blank">https://lowertown.bandcamp.com/album/ugly-duckling-union</a>**
+
+
+
+ Written by Aiden Waasaezi
+
+*Burston J, Dyer-Witheford N, Hearn A. Digital Labour: Workers, authors, citizens.  ephemera | theory & politics in organization.  Volume 10(3/4): 213-221.  2010.  <a href="https://ephemerajournal.org/sites/default/files/2022-01/10-3editorial.pdf" target="_blank">https://ephemerajournal.org/sites/default/files/2022-01/10-3editorial.pdf</a>*
+
+*Morini C, Fumagalli A. Life put to workL Towards a life theory of value.  ephemera | theory & politics in organization.  Volume 10(3/4): 234-252.  2010.  <a href="https://ephemerajournal.org/sites/default/files/2022-01/10-3morinifumagalli.pdf" target="_blank">https://ephemerajournal.org/sites/default/files/2022-01/10-3morinifumagalli.pdf</a>*

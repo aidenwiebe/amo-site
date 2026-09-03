@@ -31,6 +31,6 @@ Get this of my head:  Biocapitalism belongs in history classes and nowhere else.
 
  Written by Aiden Waasaezi
 
-*Burston J, Dyer-Witheford N, Hearn A. Digital Labour: Workers, authors, citizens.  ephemera | theory & politics in organization.  Volume 10(3/4): 213-221.  2010.  <a href="https://ephemerajournal.org/sites/default/files/2022-01/10-3editorial.pdf" target="_blank">https://ephemerajournal.org/sites/default/files/2022-01/10-3editorial.pdf</a>*
+*Burston J, Dyer-Witheford N, Hearn A. Digital Labour: Workers, authors, citizens.  ephemera: theory & politics in organization.  Volume 10(3/4): 213-221.  2010.  <a href="https://ephemerajournal.org/sites/default/files/2022-01/10-3editorial.pdf" target="_blank">https://ephemerajournal.org/sites/default/files/2022-01/10-3editorial.pdf</a>*
 
-*Morini C, Fumagalli A. Life put to workL Towards a life theory of value.  ephemera | theory & politics in organization.  Volume 10(3/4): 234-252.  2010.  <a href="https://ephemerajournal.org/sites/default/files/2022-01/10-3morinifumagalli.pdf" target="_blank">https://ephemerajournal.org/sites/default/files/2022-01/10-3morinifumagalli.pdf</a>*
+*Morini C, Fumagalli A. Life put to work: Towards a life theory of value.  ephemera: theory & politics in organization.  Volume 10(3/4): 234-252.  2010.  <a href="https://ephemerajournal.org/sites/default/files/2022-01/10-3morinifumagalli.pdf" target="_blank">https://ephemerajournal.org/sites/default/files/2022-01/10-3morinifumagalli.pdf</a>*

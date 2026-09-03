@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Notes on bio-capitalism, digital labour, and the AI cult
+title: Notes on bio-capitalism and digital labour
 ---
 
 

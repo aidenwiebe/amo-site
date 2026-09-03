@@ -17,5 +17,5 @@ This time, "The University and College of London, Ontario" has not worked quickl
 
 Written by E-AWRF
 
-*changeover announcement: https://music.uwo.ca/alumni/greetings.html*
-*appointment notice: https://music.uwo.ca/news/2025/roland-acting-dean-appointment.html*
+*changeover announcement: <a href="https://music.uwo.ca/alumni/greetings.html" target="_blank">https://music.uwo.ca/alumni/greetings.html</a>*
+*appointment notice: <a href="https://music.uwo.ca/news/2025/roland-acting-dean-appointment.html" target="_blank">https://music.uwo.ca/news/2025/roland-acting-dean-appointment.html</a>*

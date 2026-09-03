@@ -22,10 +22,10 @@ The article starts to define emotional labour as the burden gets too heavy for m
 
 Because it's intentional.  It suggests that an individual with knowledge is a node to be extracted, and that is exactly what is happening here.  
 
-You're welcome colony!  I actually lose money on this project!  Forget "what's being sold is not entirely being paid", there is no sale anymore.  I give it up at a loss, and my soul pays the price.  I live on $5000 CAD a year, which is *awarded* to me by the Divorce Act (which is only correcting the overreach of the Family Law Act) *both of which* are responsible for my diagnosed major depressive disorder among other emotional and identity-related challenges, so thank you as well, the state of THE STATE:  please update the your curriculum and legislature to finally get out of my head.  Biocapitalism belongs in history classes and nowhere else.  I fucking hate you.I fucking ha.te youI fucki.ng hate youI fucking hate youI. fucking hate yo.uI fucking hate youI .fucking hate you.I fucking hate yo.u  .
+You're welcome colony!  I actually lose money on this project!  Forget "what's being sold is not entirely being paid", there is no sale anymore.  I give it up at a loss, and my soul pays the price.  I live on $5000 CAD a year, which is *awarded* to me by the Divorce Act (which is only correcting the overreach of the Family Law Act) *both of which* are responsible for my diagnosed major depressive disorder among other emotional and identity-related challenges, so thank you as well, the state of THE STATE:  please update the your curriculum and legislature to finally get out of my head.  Please stop the rural GUARDIAN initiative.  Please let the spiritual traditions of the Anishinaabe out of the LGBTQ+ umbrella.  Biocapitalism belongs in history classes and nowhere else.  I fucking hate you.I fucking ha.te youI fucki.ng hate youI fucking hate youI. fucking hate yo.uI fucking hate youI .fucking hate you.I fucking hate yo.u  .
 
 
-**To feel better, listen to the latest release by our modern punk royalty: Lowertown!  <a href="https://lowertown.bandcamp.com/album/ugly-duckling-union" target="_blank">https://lowertown.bandcamp.com/album/ugly-duckling-union</a>**
+**To feel better, listen to the latest release by our modern punk royalty: Lowertown!  Fight your lover, not the government!  <a href="https://lowertown.bandcamp.com/album/ugly-duckling-union" target="_blank">https://lowertown.bandcamp.com/album/ugly-duckling-union</a>**
 
 
 

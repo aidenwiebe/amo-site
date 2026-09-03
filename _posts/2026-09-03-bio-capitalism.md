@@ -14,20 +14,18 @@ The whole thing is so insidious.
 
 "When the productive process incorporates knowledge and affects desires and bodies, motivations and opinions, then it is clearly evident that what is actually being sold is not entirely paid." (Morini and Fumagalli, 238).  
 
-The introduction of **Life put to work** places biocapitalism as a continuation of marxism.  It describes marxism as the theory that value is a material thing created by an amount of labour, measured in a unit of time.  It opposes this to utilitarianism, which is the theory that value is itself a unit of measurement for human utility.  
+The introduction of **Life put to work** places biocapitalism as a continuation of marxism.  It defines marxism as the theory that value is a material thing created by an amount of labour, measured in a unit of time.  It opposes this to utilitarianism, which is it defines as the theory that value is itself an abstract unit used to measure human utility.  Neither are the whole picture, but I'll get there soon.  The biocapitalists were close to my subjectivity network theory of everything, if only they gave up materialism.
 
-Biocapitalism claims to be an extention of marxism by expanding value to include immaterial things, such as knowledge, the soul, and life itself.  It retains labour-time as the metric of focus, meaning that the meaning of life, the value of existance, is determined by how much we work.  Though they will not admit it, this means that to the biocapitalist, unemployed people are worth less.  Disabled people are worth less.  Anticapitalists are worth less.  It makes the mistake of saying that knowledge is produced by capitalism, yet when the market framwork is used to understand life, it completely misses the mark.  This is ancient knowledge, found in all major religions.  The strangest thing is that biocapitalism has infected academia, the arts, and our governments.  We'd like to think our species is becoming smarter as time goes on, but when the economists so plainly describe the internalization of market value into our self worth, it takes us 16 years to shake the spell.  It's clear now, this forshadows everything that's made the Western states into hell on earth.  It's not a baby boomer v gen z cultural divide, its the most recent, most well-disguised effort on the part of the owning class to reposess underproductive or independent humans, when a return to slavery or holocaust would be too obvious.  
+Instead, they claim to be an extention of marxism by expanding value to also include immaterial things, such as knowledge, the soul, and life itself (though life is rather material).  They retain labour-time as the metric of focus, meaning that the meaning of life, the value of existance, is determined by how much we work.  Though they will not admit it, this means that to the biocapitalist, unemployed people are worth less.  Disabled people are worth less.  Anticapitalists are worth less.  These statements are naturally unsettling; even those who might believe such lies are unsettled by the fear of punishment that would follow acting out such ideas in reality.  So it's an overreach for the biocapitalist to claim that knowledge can be produced by a market.  When the market framwork is used to understand life, it misses the mark.  This is ancient knowledge, found in all major religions.  The strangest thing then is how biocapitalism has infected academia, the arts, and our governments.  We'd like to think our species is becoming smarter as time goes on, but when the economists so plainly describe the internalization of market values into our self worth, it takes us 16 years to shake the spell.  It's clear now, this forshadows everything that's made the western states into hell on earth.  It's not a baby boomer v gen z cultural divide, its the most recent, most well-disguised effort on the part of the owning class to reposess underproductive or independent humans, when a return to slavery or another holocaust would be too obvious.  
 
-The article starts to define emotional labour as the burden gets too heavy for me to finish a 19 page document.  
+The article starts to define emotional labour as the burden gets too heavy for me to finish a 19 page document.  (Rhetoric.  I read it all.)
 
-It's intentional.
+Because it's intentional.  It suggests that an individual with knowledge is a node to be extracted.  
 
-Get out of my head.
-
-Biocapitalism belongs in history classes and nowhere else.  
+Get this of my head:  Biocapitalism belongs in history classes and nowhere else.  
 
 
-**To feel better, listen to the latest release by punk royalty band: Lowertown!  <a href="https://lowertown.bandcamp.com/album/ugly-duckling-union" target="_blank">https://lowertown.bandcamp.com/album/ugly-duckling-union</a>**
+**To feel better, listen to the latest release by our modern punk royalty: Lowertown!  <a href="https://lowertown.bandcamp.com/album/ugly-duckling-union" target="_blank">https://lowertown.bandcamp.com/album/ugly-duckling-union</a>**
 
 
 

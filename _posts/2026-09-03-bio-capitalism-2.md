@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Notes on bio-capitalism and digital labour, part 2
+title: Notes on bio-capitalism and digital labour—— Reparations
 ---
 
 

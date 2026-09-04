@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Notes on bio-capitalism and digital labour, part 1
+title: Notes on bio-capitalism and digital labour——— Theory
 ---
 
 

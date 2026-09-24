@@ -21,10 +21,15 @@ Y’all think London is a joke, and I’m inclined to agree.  Wait yeah, the ven
 Then, a fantasy band category.  Clearly just an unofficial nod to Juice Joint, but maybe it’s called the Nathan Nykor Ensemble now.  Whatever ends up happening with that group, their next release will knock Guy Lombardo as London’s canonical jazz act.  It’s SERIOUSLY well done. 
 
 And rapid fire to finish this off:
+
 Simon Larochette wasn’t nominated for Engineering
+
 Oh Berlin wasn’t nominated for pop or rock
+
 Lido Pimienta wasn’t nominated for pop or latin
+
 the AI announcer pronounced Insyt as “in sit”,,,
+
 and someone’s mom beat Kai at hip hop because tha tribe voters were split 3 ways.
 
 Of course the afro cuban winner didn’t even show up.  He knows very well, the spirit isn’t in the industry.  

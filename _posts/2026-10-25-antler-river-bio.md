@@ -1,6 +1,6 @@
 ---
 layout: post
-title: (💿) Who is the antler river company?
+title: (💿) Who is the antler river company?  A GENUINE HISTORICAL RECORD
 ---
 
 Willow switch emerged out of the 2010s midwest noise with a sound that harkens back to psychedelic-era progressive folk groups like Comus, and further still, drawing inspiration from the Anishinaabek ghost dance, indigenous Romanian folk song, and the land itself.  Their music is fiercely political in ways you wouldn’t expect– Andra’s family fled violent revolution, though anarchist ideals are still romanticised through the eternal truth that in time, all nations will fall and we can return to life free of foreign rulers.  The constant is death, and the magical patterns life finds to escape it.  I first saw them perform at the first annual Stompfest, and fell in love with the perfect blend of heartfelt lyricism, powerful performances, and the mystic atmosphere surrounding.    
@@ -12,7 +12,7 @@ Meanwhile, I started at Grogettes in an overlapping music community led by the B
 In 2026, we’re recollecting our intent of putting the community above 15 minutes of fame.  I’ve released a remaster of the original Willow Switch project with extra instrumentation, and Andra and Tim (of King Cobra Sex Cult) moved to Toronto for collaborations with the Spindle Collective and Project Nowhere.  Lori Watt has stepped up to lead the local scene with Robin, and a vibrant network of resistance has developed between concert goers, journalists, friends, artists, market spaces, and venue operators since.  Now, Willow Switch reconvenes for the city’s largest halloween party yet at Centennial Hall, and wrapped the line around the block for the ticketed costume-manditory afterparty at Honey Dip.  Stay watching for new projects as lineups morph into the future’s greatest bands of the End America movement.   
 
 Nii’bizh anishinaabewaki
-- Aiden Waasaezi
+- Written by Aiden Waasaezi
 
 
 *Willow Switch Remaster: <a href="http://apolmus.org/pearlandhermes_side_z.mp3" target="_blank">The Eternal Dance of Pearl and Hermes: Side Z</a>*
@@ -20,5 +20,11 @@ Nii’bizh anishinaabewaki
 *Listen to Holy Locust for “End America”: <a href="https://holylocust.bandcamp.com/album/limbs-appear" target="_blank">https://holylocust.bandcamp.com/album/limbs-appear</a>*
 
 *Owl & Antler: <a href="https://owlandantler.bandcamp.com/" target="_blank">https://owlandantler.bandcamp.com/album/this-bike</a>*
+
+*Averting Eyes: <a href="avertingeyes.bandcamp.com" target="_blank">avertingeyes.bandcamp.com</a>*
+
+*The Film Critics: <a href="https://thefilmcritics.bandcamp.com/" target="_blank">https://thefilmcritics.bandcamp.com/album/4-songs-from</a>*
+
+*Susans: <a href="https://ssusanss.bandcamp.com/album/susans" target="_blank">https://ssusanss.bandcamp.com/album/susans</a>
 
 **& the NEW WILLOW SWITCH (to be released)**

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: (💿) Who is the antler river company?  ;D
+title: (💿) Who is the ANTLER RIVER CO.?  ;D
 ---
 
 Willow switch emerged out of the 2010s midwest noise with a sound that harkens back to psychedelic-era progressive folk groups like Comus, and further still, drawing inspiration from the Anishinaabek ghost dance, indigenous Romanian folk song, and the land itself.  Their music is fiercely political in ways you wouldn’t expect– Andra’s family fled violent revolution, though anarchist ideals are still romanticised through the eternal truth that in time, all nations will fall and we can return to life free of foreign rulers.  The constant is death, and the magical patterns life finds to escape it.  I first saw them perform at the first annual Stompfest, and fell in love with the perfect blend of heartfelt lyricism, powerful performances, and the mystic atmosphere surrounding.    
@@ -14,20 +14,21 @@ In 2026, we’re recollecting our intent of putting the community above 15 minut
 Nii’bizh anishinaabewaki
 - Written by Aiden Waasaezi
 
+--------------------------
 
 *Willow Switch Remaster: <a href="http://apolmus.org/pearlandhermes_side_z.mp3" target="_blank">The Eternal Dance of Pearl and Hermes: Side Z</a>*
 
-*Listen to Holy Locust for “End America”: <a href="https://holylocust.bandcamp.com/album/limbs-appear" target="_blank">https://holylocust.bandcamp.com/album/limbs-appear</a>*
+*Listen to Holy Locust for “End America”: <a href="https://holylocust.bandcamp.com/album/limbs-appear" target="_blank">https://holylocust.bandcamp.com/</a>*
 
-*Owl & Antler: <a href="https://owlandantler.bandcamp.com/" target="_blank">https://owlandantler.bandcamp.com/album/this-bike</a>*
+*Owl & Antler: <a href="https://owlandantler.bandcamp.com/album/this-bike" target="_blank">https://owlandantler.bandcamp.com/</a>*
 
 *Averting Eyes: <a href="avertingeyes.bandcamp.com" target="_blank">avertingeyes.bandcamp.com</a>*
 
-*The Film Critics: <a href="https://thefilmcritics.bandcamp.com/" target="_blank">https://thefilmcritics.bandcamp.com/album/4-songs-from</a>*
+*The Film Critics: <a href="https://thefilmcritics.bandcamp.com/album/4-songs-from" target="_blank">https://thefilmcritics.bandcamp.com/</a>*
 
 *Susans: <a href="https://ssusanss.bandcamp.com/album/susans" target="_blank">https://ssusanss.bandcamp.com/album/susans</a>*
 
-*Rent Strike in Toronto: <a href="https://www.ticketweb.ca/" target="_blank">https://www.ticketweb.ca/event/sister-wife-sex-strike-farewell-sneaky-dees-concert-venue-tickets/14339354</a>*
+*Rent Strike in Toronto: <a href="https://www.ticketweb.ca/event/sister-wife-sex-strike-farewell-sneaky-dees-concert-venue-tickets/14339354" target="_blank">https://www.ticketweb.ca/</a>*
 
 
 

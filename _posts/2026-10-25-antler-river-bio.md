@@ -1,6 +1,6 @@
 ---
 layout: post
-title: (💿) Who is the antler river company?  A GENUINE HISTORICAL RECORD ;)
+title: (💿) Who is the antler river company?  ;D
 ---
 
 Willow switch emerged out of the 2010s midwest noise with a sound that harkens back to psychedelic-era progressive folk groups like Comus, and further still, drawing inspiration from the Anishinaabek ghost dance, indigenous Romanian folk song, and the land itself.  Their music is fiercely political in ways you wouldn’t expect– Andra’s family fled violent revolution, though anarchist ideals are still romanticised through the eternal truth that in time, all nations will fall and we can return to life free of foreign rulers.  The constant is death, and the magical patterns life finds to escape it.  I first saw them perform at the first annual Stompfest, and fell in love with the perfect blend of heartfelt lyricism, powerful performances, and the mystic atmosphere surrounding.    
@@ -27,7 +27,7 @@ Nii’bizh anishinaabewaki
 
 *Susans: <a href="https://ssusanss.bandcamp.com/album/susans" target="_blank">https://ssusanss.bandcamp.com/album/susans</a>*
 
-*Rent Strike in Toronto: <a href="https://www.ticketweb.ca/event/sister-wife-sex-strike-farewell-sneaky-dees-concert-venue-tickets/14339354" target="_blank">https://www.ticketweb.ca/event/sister-wife-sex-strike-farewell-sneaky-dees-concert-venue-tickets/14339354</a>
+*Rent Strike in Toronto: <a href="https://www.ticketweb.ca/" target="_blank">https://www.ticketweb.ca/event/sister-wife-sex-strike-farewell-sneaky-dees-concert-venue-tickets/14339354</a>*
 
 
 

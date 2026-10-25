@@ -6,6 +6,6 @@ Rock in Opposition was an international movement of ‘uncommercial’ left-wing
 
 Written by the fine folks at rateyourmusic.com
 
-The industry loves to celebrates stardom n say the resistance ended.  Only difference is it's 2026 and we're folk this time.  
+The industry loves to celebrates stardom n say the resistance ended.  Only difference is it's 2026 and we're folk this time.  Check Flail Records <a href="https://flailrecords.com/" target="_blank">https://flailrecords.com/</a>*
 
 AWRF

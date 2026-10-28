@@ -28,8 +28,6 @@ Nii’bizh anishinaabewaki
 
 *The Film Critics: <a href="https://thefilmcritics.bandcamp.com/album/4-songs-from" target="_blank">https://thefilmcritics.bandcamp.com/</a>*
 
-*Susans: <a href="https://ssusanss.bandcamp.com/album/susans" target="_blank">https://ssusanss.bandcamp.com/album/susans</a>*
-
 *Rent Strike in Toronto: <a href="https://www.ticketweb.ca/event/sister-wife-sex-strike-farewell-sneaky-dees-concert-venue-tickets/14339354" target="_blank">https://www.ticketweb.ca/</a>*
 
 

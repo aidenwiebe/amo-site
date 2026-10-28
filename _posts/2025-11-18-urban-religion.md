@@ -43,4 +43,4 @@ I am using Jesus for my political motives too.  Only mine strive towards harmony
 ------------------------------------
 
 
-Strawman by Aiden Waasaezi
+Yeah yeah a strawman by Aiden Waasaezi

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Shout out Hunter Stull for her performance of "O Canada"
+title: shout out Hunter Stull for her performance of "O Canada"
 ---
 <a href="https://www.ctvnews.ca/london/article/the-words-should-not-be-changed-altered-lyrics-sung-during-national-anthem-at-council-meeting/" target="_blank">https://www.ctvnews.ca/london/article/the-words-should-not-be-changed-altered-lyrics-sung-during-national-anthem-at-council-meeting/</a>
 

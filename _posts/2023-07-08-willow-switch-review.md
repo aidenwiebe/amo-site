@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Willow Switch Review
+title: Willow Switch review
 ---
 
 Holy texture!

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Dean of the Faculty of Music resigns for no official reason
+title: the dean of the faculty of music resigns for no official reason
 ---
 
 According to his linkedin at the time of writing, Michael Kim is dean and professor of the Don Wright Faculty of Music at "The Western University and College of London, Ontario".  Further, the faculty's publication this past February has Michael Kim pictured as the current dean, with the 30th of June stated as the date of his departure.  

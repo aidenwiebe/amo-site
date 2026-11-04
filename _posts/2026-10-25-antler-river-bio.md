@@ -1,6 +1,6 @@
 ---
 layout: post
-title: (💿) Who is the ANTLER RIVER CO.?!??!
+title: (💿) who is the ANTLER RIVER CO.?!??!
 ---
 
 Willow Switch emerged out of the 2010s midwest noise with a sound that harkens back to psychedelic-era progressive folk groups like Comus, and further still, drawing inspiration from the Anishinaabek ghost dance, indigenous Romanian folk song, and the land itself.  Their music is fiercely political in ways you wouldn’t expect– Andra’s family was fortunately able to flee a violent revolution, though anarchist ideals are still romanticised through the eternal truth that in time, once all nations have fallen, we will return to life free of foreign rulers.  The constant is death, and the magical patterns life finds to escape it.  In 2023 I saw them perform at the first annual Stompfest, and fell in love with the perfect blend of heartfelt lyricism, powerful performances, and the mystic atmosphere surrounding.    

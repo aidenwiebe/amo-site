@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Urban Religion
+title: urban religion
 ---
 
 We use the term "urban religion" because we must reject the claim that any one urban centre makes to the culture of conformity.  This originates in having several individuals living in one place, under one name.  
